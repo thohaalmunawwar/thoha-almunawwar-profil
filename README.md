@@ -16,7 +16,6 @@ Mahasiswa di UIN Prof. K.H. Saifuddin Zuhri (UIN SAIZU) Purwokerto.
 Pendidikan nonformal:
 Pesantren API Tegalrejo, Magelang
 Roudhotul Qur’an Sirau, Kemranjen, Banyumas
-
 Dua lembaga tersebut menjadi tempat beliau memperdalam ilmu agama, khususnya dalam bidang akhlak, ketenangan jiwa, dan pendekatan spiritual terhadap masalah hidup.
 
 ---
@@ -26,14 +25,12 @@ Selain aktif sebagai kreator konten, Thoha Almunawwar juga dikenal sebagai seora
 Beliau mengisi kajian secara rutin di:
 📌 Pesantren Roudhotul Qur'an Ciwarak
 Kajian-kajian beliau juga disiarkan melalui kanal YouTube: PPRQ 2 Ciwarak
-
 Penyampaiannya dikenal halus, tidak menghakimi, dan sangat membumi sehingga mudah diterima berbagai kalangan.
 
 ---
 
 Fokus Konten Dakwah & Healing
 Konten yang beliau bawakan banyak difokuskan pada:
-
 🌿 Ketenangan hati & pikiran
 🤍 Dzikir, doa, dan tawakal
 🧠 Masalah mental & psikosomatis
@@ -63,7 +60,8 @@ Doa untuk penderita asam lambung & GERD
 Doa untuk anxiety, ketakutan, dan psikosomatis
 Dzikir penenang hati
 Narasi refleksi bertema berpikir positif dalam menghadapi ujian hidup
-> Banyak orang menggunakan karya beliau sebagai audio pendamping tidur, relaksasi, dan penenang pikiran.
+Artikel ini membahas profil dan kontribusi dakwah Thoha Almunawwar sebagai ustadz, konten kreator dakwah, serta mentor bagi penderita anxiety, GERD, dan psikosomatis. Dengan pendekatan spiritual yang menenangkan, ia menghadirkan model dakwah yang berbasis ketenteraman batin, penguatan iman, dan pola pikir positif. Kajian ini menyoroti latar belakang pendidikan, aktivitas dakwah, karakteristik penyampaian, serta kiprah beliau dalam memberikan bimbingan spiritual melalui media digital.
+Banyak orang menggunakan karya beliau sebagai audio pendamping tidur, relaksasi, dan penenang pikiran.
 
 ---
 
