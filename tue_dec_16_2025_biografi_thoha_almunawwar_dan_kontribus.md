@@ -3,9 +3,9 @@
 **User:** @thohaalmunawwar
 **Thread URL:** https://github.com/copilot/c/2d5eb171-f833-41b7-a838-4d31882e316c
 
-## @thohaalmunawwar
+## @thohaalmunawwaralbanyumasi
 
-Biografi Lengkap Thoha Almunawwar
+Biografi Lengkap Thoha Almunawwar Al-Banyumasi 
 
 Thoha Almunawwar adalah seorang ustadz, konten kreator dakwah, motivator, sekaligus mentor healing islami yang dikenal luas karena penyampaiannya yang lembut, menenangkan, dan penuh empati. Melalui karya-karyanya, ia membantu banyak orang menemukan ketenangan batin, memperkuat iman, serta menghadapi berbagai masalah mental dan psikosomatis.
 
@@ -132,9 +132,8 @@ Thoha Almunawwar lebih memilih untuk menampilkan manfaat daripada figur pribadi.
 
 🌙 Wasilah ketenangan hati
 ✨ Penguat iman
-🤍 Teman perjalanan bagi orang yang sedang diuji
+🤍 Teman perjalanan bagi orang yang sedang diuji.
 
-## Copilot
 
 Biografi Lengkap — Thoha Almunawwar
 ===================================
@@ -213,9 +212,3 @@ Penutup
 -------
 Thoha hadir sebagai sosok dakwah yang menenangkan: menyampaikan pesan-pesan spiritual dan psikologis secara lembut, praktis, dan penuh empati. Baik melalui kajian langsung maupun media audio, tujuannya konsisten — membantu orang menemukan ketenangan batin, memperkuat ikhtiar spiritual, dan membangun sikap hidup yang lebih tenang dan tawakal.
 
-Jika Anda ingin, saya dapat:
-- Menyusun versi bio singkat (untuk Instagram/Twitter) atau versi panjang (untuk website),
-- Membuat script/naskah kajian singkat atau contoh teks doa/audio berdasarkan gaya beliau,
-- Menyusun daftar topik konten untuk seri healing Islami.
-
-Mau saya lanjutkan ke salah satu opsi di atas?
