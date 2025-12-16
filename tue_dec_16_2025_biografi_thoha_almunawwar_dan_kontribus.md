@@ -136,8 +136,6 @@ Thoha Almunawwar lebih memilih untuk menampilkan manfaat daripada figur pribadi.
 
 ## Copilot
 
-Berikut adalah versi terstruktur dan dipoles dari "Biografi Lengkap Thoha Almunawwar" yang Anda berikan — ditulis rapi untuk keperluan profil, website, bio media sosial, atau publikasi dakwah.
-
 Biografi Lengkap — Thoha Almunawwar
 ===================================
 
